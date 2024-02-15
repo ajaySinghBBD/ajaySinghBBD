@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on with my Own problem.
 - 📫 Don't try Reach out Me. Because byond of your Reach.but if you want then mail me.
 - 😄 Pronouns: ...Aj
-- ⚡ Fun fact: Fun fact is that, I developer, but here I am developing ownself , instead of Developing the Code.
+- ⚡ Fun fact: Fun fact is that, I am developer, but here I am developing ownself , instead of Developing the Code.
 
 <!---
 ajaySinghBBD/ajaySinghBBD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
